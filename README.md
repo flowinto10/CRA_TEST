@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/62d6171c-266c-4d81-a5b9-20fcc812218e)# 읽어보시오
+![image](https://github.com/user-attachments/assets/62d6171c-266c-4d81-a5b9-20fcc812218e)# 읽어보시오 전 양이예요
 
 ## 첫번째
 이 글은 중요해요
